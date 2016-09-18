@@ -1,1 +1,1 @@
-# shizukai, jaian and Nobita_project
+# shizukai,suneo jaian and Nobita_project
